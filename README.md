@@ -1,1 +1,0 @@
-# thomasbdoyle.github.io
